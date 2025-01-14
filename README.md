@@ -3,4 +3,6 @@ hear i am learning about the concepts and terminology of Ai and posting my nots 
 
 meet our Mc Aju 
 Aju is 8 year old school going boy of  a small village
-aju is a crios boy and he lookup to his grandfather mr. narayan he is a retierd scintist
+aju's eyes is fill with the Curiosity he seak answers from his grandfather mr. narayan he is a retierd scintist
+often mr. narayan explain diffrent consept to Aju.
+
